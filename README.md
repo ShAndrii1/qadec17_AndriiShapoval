@@ -1,0 +1,1 @@
+# qadec17_AndriiShapoval
